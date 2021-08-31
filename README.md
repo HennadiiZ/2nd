@@ -1,3 +1,3 @@
 #  CHINESE ARTS WEBSITE: 
 for fun
-https://hennadiiz.github.io/2nd/
+https://hennadiiz.github.io/CHINESE-ARTS-WEBSITE/
